@@ -8,3 +8,4 @@ Here's what to do:
 ▪️Connect your X account
 ▪️Join the Discord
 ▪️Create content, get roles
+Takes 5 minutes. Username is the only thing you might regret not securing early
